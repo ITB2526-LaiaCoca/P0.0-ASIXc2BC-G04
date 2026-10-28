@@ -1,0 +1,1 @@
+hola aqui poner sobre el proofhub, sprints, backlog, el reparto.......... gracias
